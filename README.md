@@ -1,4 +1,4 @@
 ## Check my profile 🤙
 
-take a look at my projects !!
+Take a look at my projects to see top quality. 😉
 
